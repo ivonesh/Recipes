@@ -1,4 +1,4 @@
-👨🏻‍🍳Sausage Gravy👨🏻‍🍳
+Sausage Gravy
 =============
 
 Ingredients | Quantity

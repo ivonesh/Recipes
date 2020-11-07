@@ -3,7 +3,6 @@ Sausage Gravy
 
 Quantity|Ingredients
 ---|---
-
 1 lb | Breakfast sausage
 4 cups | Warmed whole milk (50% power for 3 minutes)
 6-7 Tablespoons | Flour

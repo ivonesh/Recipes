@@ -3,7 +3,7 @@ Chipotle Shrimp
 
 Ingredient | Amount
 -|-
-Peeled medium-to-large shrimp | 1.25 lbs
+Medium-to-large shrimp, raw + peeled | 1.25 lbs
 Garlic | 3 Cloves
 Can of fire-roasted tomatoes | 1/2 of 14.5oz Can, lightly drained
 Chipolte in adobo | 2 to 3

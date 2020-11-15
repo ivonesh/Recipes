@@ -4,7 +4,7 @@ Sausage Gravy
 Ingredient | Amount
 -|-
 Breakfast sausage | 1 lb
-Whole milk, warmed | 4 cups (Microwave at 50% power for 3 minutes)
+Whole milk | 4 cups, warmed (Microwave at 50% power for 3 minutes)
 Flour | 6-7 Tablespoons
 Butter, optional if sausage is lean | 2-3 Tablespoons
 Salt | To taste

@@ -20,16 +20,17 @@ Eggs | 6 Large at room temperature
 
 
 **Meat Filling**
+Ingredient | Amount
 -|-
-(2) Large onions, coarsely grated
-3 TB Butter
-2 lbs Lean ground beef
-1 Cup Dry red wine
-4 TB Tomato paste
-1 TSP Nutmeg
-1/4 TSP Black pepper
-1 TB Salt
-1/2 TSP Ground cinnamon
+Onion, large | (2) Coarsely grated
+Unsalted Butter | 3 TB
+Lean ground beef | 2 lbs
+Dry red wine | 1 Cup
+Tomato paste | 4 TB
+Nutmeg | 1 TSP
+Black pepper | 1/4 TSP
+Salt | 1 TB
+Cinnamon Ground | 1/2 TSP
 
 14" Deep sided frying pan
 Saute onions in butter over low heat until soft and transparent, do not brown.

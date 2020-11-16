@@ -18,7 +18,9 @@ Unseasoned breadcrumbs | 1/2 Cup (1/4 cup + 2TB + 2TB)
 Kefalotyri cheese | 3 Cups grated  (1.5 cups + 1/2 cup + 1/2 cup + 1/4 cup + 1/4 cup)
 Eggs | 6 Large at room temperature
 
+
 **Meat Filling**
+-|-
 (2) Large onions, coarsely grated
 3 TB Butter
 2 lbs Lean ground beef
@@ -29,7 +31,7 @@ Eggs | 6 Large at room temperature
 1 TB Salt
 1/2 TSP Ground cinnamon
 
-14" Deep sided skillet
+14" Deep sided frying pan
 Saute onions in butter over low heat until soft and transparent, do not brown.
 Add ground beef and cook on high until browned, making sure beef is uniform in size.
 Blend tomato paste into wine. Add nutmeg, pepper, salt, and cinnamon. Then, add mixture to meat and combine thoroughly.
@@ -89,7 +91,7 @@ Sprinkle with 2TB of breadcrumbs and 1/4 cup cheese
 Dot with 3 TB butter
 
 **Bake**
-Bake 350 degrees for 50 minutes or until golden and sizzling light brown on top
+Bake at 350 degrees for 50 minutes or until golden and sizzling
 Remove from oven
 Rest for 15 minutes
 Cut and serve

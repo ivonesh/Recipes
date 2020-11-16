@@ -29,6 +29,7 @@ Eggs | 6 Large at room temperature
 1 TB Salt
 1/2 TSP Ground cinnamon
 
+14" Deep sided skillet
 Saute onions in butter over low heat until soft and transparent, do not brown.
 Add ground beef and cook on high until browned, making sure beef is uniform in size.
 Blend tomato paste into wine. Add nutmeg, pepper, salt, and cinnamon. Then, add mixture to meat and combine thoroughly.

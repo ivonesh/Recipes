@@ -20,4 +20,4 @@ Salt | 1/2 Teaspoon or more
 5. Stir in the cream, pepper, and oregano.
 6. Reduce heat to medium and let simmer for several minutes for the flavors to come together.
 7. Taste and season with salt, usually 1/2 teaspoon.
-8. Add the shrimp and stir until they are just cooked through (just losing their translucency at the center), about 3 minutes.
+8. Add the shrimp and stir until they are cooked through (just losing their translucency at the center), about 3 minutes.

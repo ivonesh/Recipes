@@ -13,11 +13,10 @@ Black pepper | 1/4 TSP
 Salt | 1 TB
 Cinnamon Ground | 1/2 TSP
 AP Flour | 12 TB
-2% Milk | 6 Cups, warmed 
+2% Milk | 6 Cups, warmed
 Unseasoned breadcrumbs | 1/2 Cup (1/4 cup + 2TB + 2TB)
 Kefalotyri cheese | 3 Cups grated  (1.5 cups + 1/2 cup + 1/2 cup + 1/4 cup + 1/4 cup)
 Eggs | 6 Large at room temperature
-
 
 **Meat Filling**
 Ingredient | Amount

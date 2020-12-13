@@ -31,9 +31,7 @@ Black pepper | 1/4 TSP
 Salt | 1 TB
 Cinnamon Ground | 1/2 TSP
 
-14" Deep sided frying pan
-
-Saute onions in butter over low heat until soft and transparent, do not brown.
+In a 14" deep sided frying pan saute onions in butter over low heat until soft and transparent, do not brown.
 Add ground beef and cook on high until browned, making sure beef is uniform in size.
 Blend tomato paste into wine. Add nutmeg, pepper, salt, and cinnamon. Then, add mixture to meat and combine thoroughly.
 Simmer over very low heat uncovered for 1 hour. If before the hour is up and the contents are sticking to the pan, add 1/4 cup more wine or water and continue to simmer until the hour is up.

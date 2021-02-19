@@ -8,7 +8,7 @@ Vegetable or Canola Oil | 1/4 Cup
 Garlic, minced | 1 Teaspoon
 Onion, white medium | 1/4, finely diced
 Tomato sauce | 1/4 Cup
-Tomato bouillon cube *or* granulated | 2 cubes, finely chopped or 2 Tablespoons
+Tomato bouillon cube **or** granulated | 2 cubes, finely chopped **or** 2 Tablespoons
 Salt | 1/4 Teaspoon
 Water | 1.5 Cups
 Frozen Peas | 1/3 Cup

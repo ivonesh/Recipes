@@ -4,14 +4,14 @@ Pastitsio
 Ingredient | Amount
 -|-
 Onion, large | (2) Coarsely grated
-Unsalted butter | 15TB (12TB + 3TB)
-Lean ground beef | 2 lbs
+Butter, unsalted | 15TB (12TB + 3TB)
+Ground beef, Lean | 2 lbs
 Tomato paste | 4 TB
 Dry red wine | 1 Cup
 Nutmeg | 1 TSP
 Black pepper | 1/4 TSP
 Salt | 1 TB
-Cinnamon Ground | 1/2 TSP
+Cinnamon, ground | 1/2 TSP
 AP Flour | 12 TB
 2% Milk | 6 Cups, warmed
 Unseasoned breadcrumbs | 1/2 Cup (1/4 cup + 2TB + 2TB)

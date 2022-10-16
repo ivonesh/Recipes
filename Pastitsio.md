@@ -28,7 +28,7 @@ Misko Pastitsio #2 (Bucatini)| 1 Package (500g)
 5a. If before the hour is up and the contents are sticking to the pan, add 1/4 cup more wine or water and continue to simmer until the hour is up.
 
 **Noodles**
-1. Cook for 7 minutes until [molto al dente](https://www.bonappetit.com/story/al-dente-pasta-is-actually-overcooked])(undercooked, about three minutes from being al dente)
+1. Cook for 7 minutes until molto al dente[(undercooked, about three minutes from being al dente)](https://www.bonappetit.com/story/al-dente-pasta-is-actually-overcooked])
 2. Drain, do not rinse
 3. Toss with olive oil to keep from sticking
 

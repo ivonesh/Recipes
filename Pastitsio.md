@@ -32,13 +32,13 @@ Misko Pastitsio #2 (Bucatini)| 1 Package (500g)
 2. Drain, do not rinse
 3. Toss with olive oil to keep from sticking
 
-**Basic Bechamel (6 Cups needed)**
+**Medium Weight Basic Bechamel (6 Cups needed)**
 Medium weight (makes 1 Cup)
 2 TB unsalted butter
 2 TB AP flour
 1 Cup Milk
 
-**Basic Bechamel -> Medium weight (scaled-up to make 6 Cups)**
+**Medium Weight Basic Bechamel (scaled-up to make 6 Cups)**
 12 TB unsalted butter
 12 TB AP Flour
 6 Cups warmed 2% milk
@@ -57,7 +57,7 @@ Medium weight (makes 1 Cup)
 **Prepare Meat Sauce for Assembly**
 1. Mix 1/4 cup bread crumbs and 1.5 cups cheese into meat
 
-**Basic Bechamel to Greek Bechamel**
+**Basic Bechamel --> Greek Bechamel**
 1. Beat 6 room-temperature eggs
 2. Whisk 1/2 cup cooled bechamel into eggs
 3. Stir mixture into pot of bechamel

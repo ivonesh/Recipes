@@ -17,7 +17,7 @@ AP Flour | 12 TB
 Unseasoned breadcrumbs | 1/2 Cup (1/4 cup + 2TB + 2TB)
 Kefalotyri cheese | 3 Cups grated (1.5 cups + 1/2 cup + 1/2 cup + 1/4 cup + 1/4 cup)
 Eggs | 6 Large at room temperature
-Misko Pastitsio #2 (Bucatini)|1 Package (500g)
+Misko Pastitsio #2 (Bucatini)| 1 Package (500g)
 
 **Meat Filling**
 1. In a 14" deep sided frying pan, sauté onions in butter over low heat until soft and transparent, do not brown.
@@ -28,7 +28,7 @@ Misko Pastitsio #2 (Bucatini)|1 Package (500g)
 5a. If before the hour is up and the contents are sticking to the pan, add 1/4 cup more wine or water and continue to simmer until the hour is up.
 
 **Noodles**
-1. Cook for 7 minutes until molto al dente(undercooked, about three minutes from being al dente)
+1. Cook for 7 minutes until molto al dente ([https://www.bonappetit.com/story/al-dente-pasta-is-actually-overcooked](undercooked, about three minutes from being al dente))
 2. Drain, do not rinse
 3. Toss with olive oil to keep from sticking
 

@@ -1,4 +1,4 @@
-Pastitsio
+Pastitsio (päsˈtētsēō)
 =========
 
 Ingredient | Amount
@@ -13,22 +13,18 @@ Black pepper | 1/4 TSP
 Salt | 1 TB
 Cinnamon, ground | 1/2 TSP
 AP Flour | 12 TB
-2% Milk | 6 Cups, warmed (50% microwave power for 3 minutes)
+2% Milk | 6 Cups, warmed (Microwave at 50% power for 3 minutes)
 Unseasoned breadcrumbs | 1/2 Cup (1/4 cup + 2TB + 2TB)
 Kefalotyri cheese | 3 Cups grated (1.5 cups + 1/2 cup + 1/2 cup + 1/4 cup + 1/4 cup)
 Eggs | 6 Large at room temperature
 
 **Meat Filling**
-In a 14" deep sided frying pan, sauté onions in butter over low heat until soft and transparent, do not brown.
-
-Add ground beef and cook on high until browned, making sure beef is uniform in size.
-
-Blend tomato paste into wine. Add nutmeg, pepper, salt, and cinnamon.
-
-Add mixture to meat and combine thoroughly.
-
-Simmer over very low heat uncovered for 1 hour. 
-If before the hour is up and the contents are sticking to the pan, add 1/4 cup more wine or water and continue to simmer until the hour is up.
+1. In a 14" deep sided frying pan, sauté onions in butter over low heat until soft and transparent, do not brown.
+2. Add ground beef and cook on high until browned, making sure beef is uniform in size.
+3. Blend tomato paste into wine. Add nutmeg, pepper, salt, and cinnamon.
+4. Add mixture to meat and combine thoroughly.
+5. Simmer over very low heat uncovered for 1 hour. 
+5a. If before the hour is up and the contents are sticking to the pan, add 1/4 cup more wine or water and continue to simmer until the hour is up.
 
 **Noodles**
 Cook for 7 minutes until molto al dente(undercooked, about three minutes from being al dente)

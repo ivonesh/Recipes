@@ -28,7 +28,7 @@ Misko Pastitsio #2 (Bucatini)| 1 Package (500g)
 5a. If before the hour is up and the contents are sticking to the pan, add 1/4 cup more wine or water and continue to simmer until the hour is up.
 
 **Noodles**
-1. Cook for 7 minutes until molto al dente[(undercooked, about three minutes from being al dente)](https://www.bonappetit.com/story/al-dente-pasta-is-actually-overcooked])
+1. Cook for 7 minutes until molto al dente (undercooked, about three minutes from being al dente)
 2. Drain, do not rinse
 3. Toss with olive oil to keep from sticking
 
@@ -43,41 +43,40 @@ Medium weight (makes 1 Cup)
 12 TB AP Flour
 6 Cups warmed 2% milk
 
-Melt butter over low heat
-Sift in flour
-Whisk until no lumps
-Add warmed milk while whisking
-While whisking and simmering, sauce will thicken. It should reach the consistency of heavy cream.
-Remove from heat and set aside
+1. Melt butter over low heat
+2. Sift in flour
+3. Whisk until no lumps
+4. Add warmed milk while whisking
+5. While whisking and simmering, sauce will thicken. It should reach the consistency of heavy cream.
+6. Remove from heat and set aside
 
 **Prepare Baking Pan**
-Butter a 15x10x2 pan (corners, sides, and bottom)
-Sprinkle with 2 TB of bread crumbs
+1. Butter a 15x10x2 pan (corners, sides, and bottom)
+2. Sprinkle with 2 TB of bread crumbs
 
 **Prepare Meat Sauce for Assembly**
-Mix 1/4 cup bread crumbs and 1.5 cups cheese into meat
+1. Mix 1/4 cup bread crumbs and 1.5 cups cheese into meat
 
 **Basic Bechamel to Greek Bechamel**
-Beat 6 room-temperature eggs
-Whisk 1/2 cup cooled bechamel into eggs
-Stir mixture into pot of bechamel
-Whisk 1/2 cup cheese into bechamel
+1. Beat 6 room-temperature eggs
+2. Whisk 1/2 cup cooled bechamel into eggs
+3. Stir mixture into pot of bechamel
+4. Whisk 1/2 cup cheese into bechamel
 
 **Mix Pasta, Meat, and Bechamel**
-Place pasta into mixing bowl
-Add 1/2 cup cheese to pasta and toss to coat
-Add all the meat mixture into mixing bowl
-Pour 3 cups of sauce into pasta and meat
-Mix, with hands, until evenly mixed, trying not to break noodles
-
-Place the mixture into the baking pan, distribute evenly
-Sprinkle 1/4 cup cheese
-Pour remaining sauce over top of mixture in pan until it reaches near the top of the pan. If excess sauce, discard.
-Sprinkle with 2TB of breadcrumbs and 1/4 cup cheese
-Dot with 3 TB butter that has been sliced into very thin pats
+1. Place pasta into mixing bowl
+2. Add 1/2 cup cheese to pasta and toss to coat
+3. Add all the meat mixture into mixing bowl
+4. Pour 3 cups of sauce into pasta and meat
+5. Mix, with hands, until evenly mixed, trying not to break noodles
+6. Place the mixture into the baking pan, distribute evenly
+7. Sprinkle 1/4 cup cheese
+8. Pour remaining sauce over top of mixture in pan until it reaches near the top of the pan. If excess sauce, discard.
+9. Sprinkle with 2TB of breadcrumbs and 1/4 cup cheese
+10. Dot with 3 TB butter that has been sliced into very thin pats
 
 **Bake**
-Bake at 350 degrees for 50 minutes or until golden and sizzling
-Remove from oven
-Rest for 15 minutes
-Cut and serve
+1. Bake at 350 degrees for 50 minutes or until golden and sizzling
+2. Remove from oven
+3. Rest for 15 minutes
+4. Cut and serve

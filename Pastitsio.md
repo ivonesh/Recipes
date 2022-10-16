@@ -38,7 +38,7 @@ Medium weight (makes 1 Cup)
 2 TB AP flour
 1 Cup Milk
 
-**Basic Bechamel - Medium weight (scaled-up to make 6 Cups)**
+**Basic Bechamel -> Medium weight (scaled-up to make 6 Cups)**
 12 TB unsalted butter
 12 TB AP Flour
 6 Cups warmed 2% milk

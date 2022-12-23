@@ -5,7 +5,7 @@ Ingredient | Amount
 -|-
 Breakfast sausage | 1 lb
 Whole milk | 4 cups, warmed (Microwave at 50% power for 3 minutes)
-AP Flour | 6-7 Tablespoons
+AP Flour | 6-7 Tablespoons (50g)
 Butter, optional if sausage is lean | 2-3 Tablespoons
 Salt | To taste
 Black pepper| To taste

@@ -20,7 +20,7 @@ Carrot | 1, diced
 3. Add rice and sauté, stirring often, until lightly golden, ~5 minutes.
 4. Add water, tomato sauce, garlic, onion, salt, tomato bouillon, and carrot. Stir to combine, making sure bouillon is dissolved.
 5. Turn Instant Pot off and secure lid.
-6. Select Manual/High Pressure and set timer to 4 minutes.
+6. Select Manual/High Pressure and set timer to 3 minutes.
 7. Natural release for 10 minutes.
 8. Remove lid and add peas.
 9. Gently fluff the rice with a fork, don't stir.
